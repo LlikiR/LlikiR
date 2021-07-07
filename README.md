@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LlikiR
+- 👀 I’m interested in ERROR
+- 🌱 I’m currently learning technical College
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me email
